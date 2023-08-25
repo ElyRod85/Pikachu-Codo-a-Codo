@@ -2,6 +2,6 @@
 
 Eleonora Rodríguez
 
-Grupo 5, Comisión 23580
+Comisión 23580
 
 Año 2023
